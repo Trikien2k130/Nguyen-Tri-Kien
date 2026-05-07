@@ -1,4 +1,4 @@
-# Nguyễn Trí Kiên (2013)
+# Nguyễn Trí Kiên (biệt danh SVV)
 Thông tin về ông Nguyễn Trí Kiên sinh năm 2013
 Trí Kiên tên thật là Nguyễn Trí Kiên.
 Sinh vào ngày 14 tháng 1 năm 2013.
